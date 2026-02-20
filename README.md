@@ -3,7 +3,7 @@ GPT-5 mini possible
 
 Passer Copilot en mode agent
 
-Nouveau projet : https://youtu.be/THpWtwZ866s?t=293 
+Nouveau projet : https://youtu.be/THpWtwZ866s?t=293  / https://www.youtube.com/playlist?list=PL4cUxeGkcC9h9RbDpG8ZModUzwy45tLjb
 
 Evol :  https://youtu.be/SGHIQTsPzuY
 
